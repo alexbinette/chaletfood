@@ -32,7 +32,7 @@
 
 1. Salade melon d'eau, feta et menthe
 2. Tostadas, ceviche de crevettes et salsa à la mangue
-3. Saumon poché à la citronelle, lait de coco et riz aromatisé
+3. Plat de pâtes! À déterminer, je vous tiens au courant
 
 ---
 ## RACE DAY - dimanche, 15 juin

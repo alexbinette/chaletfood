@@ -37,7 +37,7 @@
 ---
 ## RACE DAY - dimanche, 15 juin
 
-**DÉJEUNER - **CARBO** loadés comme des guns**
+**DÉJEUNER - *CARBO* loadés comme des guns**
 
 1. Toast, Gruau, miel et beurre de pine
 2. Une banane 🍌

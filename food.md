@@ -19,7 +19,7 @@
 **DÉJEUNER - Déjeuner des champions**
 
 1. Pancakes au babeurre et baies
-2. Salade de fruit
+2. Salade de fruits
 3. Café (à concerter, @Maxence et @Laetitia)
 4. Oeufs et Bacon (au besoin)
 
@@ -49,7 +49,7 @@
 
 **SOUPER - BBQ + Célébrations 🍾**
 
-1. Poulet grillé au charbon, style portugais
+1. Poulet grillé au charbon, style péruvien
 2. Maïs style mexican (Elotes), sauce fumée
 3. Hot-dogs
 4. On peut faire une salade de patates, ou on peut juste boire comme des trous
